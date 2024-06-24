@@ -1,12 +1,1 @@
-![WhatsApp Image 2024-05-19 at 8 08 50 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/c634ea9a-49a9-49f6-8519-3de6bdd3fc3f)
-![WhatsApp Image 2024-05-19 at 8 09 12 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/00be9f2b-13a0-493e-88e0-0558ac20cc00)
-![WhatsApp Image 2024-05-19 at 8 09 36 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/9b8f5f2d-2e09-43fb-a3ea-f87fefd7c4c5)
-![WhatsApp Image 2024-05-19 at 8 11 08 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/d61a3371-5d57-41d9-b7ea-440afeb780c8)
-![WhatsApp Image 2024-05-19 at 8 03 12 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/6fb21c4e-a169-4ca4-99b2-fb432117d644)
-![WhatsApp Image 2024-05-19 at 8 03 47 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/5f3dcb68-e8f4-4e58-8a29-9553ff99f37c)
-![WhatsApp Image 2024-05-19 at 8 04 16 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/003bd3a0-b9c8-4071-9208-dbb175ac5130)
-![WhatsApp Image 2024-05-19 at 8 04 43 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/6a4e6c3a-78ac-4fe2-a557-0b40073e0036)
-![WhatsApp Image 2024-05-19 at 8 05 51 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/07b7f812-a704-4040-bd3a-2c1d8b2b1e61)
-![WhatsApp Image 2024-05-19 at 8 06 16 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/1eb4854f-4161-4a72-be3e-fc18fe1809e8)
-![WhatsApp Image 2024-05-19 at 8 07 09 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/52c08fe7-923a-4f0b-8f6a-01f96eb7b839)
-![WhatsApp Image 2024-05-19 at 8 08 22 PM](https://github.com/supriyamelkunde/Indian-Clothing-E-commerce/assets/134923785/dc4726d3-b012-4add-8877-8593b5f16de3)
+
